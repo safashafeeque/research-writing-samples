@@ -26,7 +26,6 @@ I was interested in this topic because PCOS is a complex condition that affects 
 
 ## Document Type
 
-**University research proposal**  
 This is an academic proposal and not a completed research study or published paper.
 
 ## File
